@@ -1,11 +1,11 @@
 👋 Hi, I’m @Archanasangeetha
 
- 👀 I’m interested in Java and SQL
+ ✨ I’m interested in Java and SQL
  
  🌱 I’m currently learning C#
  
-   I'm interested in doing art craft work and playing throw ball.
+  ☘️ I'm interested in doing art craft work and playing throw ball.
    
- ⚡ Fun fact: All people alive although I cooked a little bit bad.
+ ⚡ Fun fact: All people alive although I cooked a little bit bad😂.But I am good at playing throwball and I'm a small drawer.
 
 
